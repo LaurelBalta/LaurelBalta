@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LaurelBalta
 - 👀 I’m interested in ...Creating things that I know nothing about.
-- 🌱 I’m currently learning ...How to do all of this with no idea what I am doing.
+- 🌱 I’m currently learning ...How to do all of this works. I have no idea what I am doing.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
